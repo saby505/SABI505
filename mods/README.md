@@ -24,3 +24,9 @@ https://www.mediafire.com/file/7kqnb5pt73fgyqm/S6B_Aboklee.7z/file
 
 مكسيما
 https://modsfire.com/download/Yv31aCQGvgA398l/b5ce3
+
+لومينا زومفل
+https://sharemods.com/yleuw8u9psj7/ZOMVL_NoLimits_Chevrolet_Lumina_2008-2010.zip.html#google_vignette
+
+كابرس ١٦
+https://modsfire.com/20py72ibsVDoJqQ
