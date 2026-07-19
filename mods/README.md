@@ -138,3 +138,33 @@ https://modsfire.com/T6AZg173d18XItK
 
 توكسك
 https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file
+
+اكسبدشن
+https://github.com/saby505/SABI505/tree/add-mods-list/mods
+
+هلي٩
+https://modsfire.com/yG8Wm9F8F8w81sV
+
+كورفت
+https://modsfire.com/3D7jRTNw619A0K7
+
+تورس دوريه
+https://modsfire.com/svhinihSG5xq5E8
+
+صني ١٠
+https://modsfire.com/save2g2FBJup4Om
+
+يوكن ١٢
+https://modsbase.com/3lkky6ggsu2v/GMC_Yukon.zip.html
+
+كورلا ١٨
+https://modsfire.com/aM9kfN7BuM6DZV3
+
+فرشنر جعفر
+https://modsfire.com/n7dG0jzSEqZDW40
+
+افلون
+https://www.mediafire.com/file/l5bans96w6vcm0b/Avalon22ByFahadAndTurki.zip/file
+
+ربيعان ١٦
+https://modsfire.com/KhYMpbp2s5K35ow
