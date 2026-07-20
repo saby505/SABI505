@@ -133,9 +133,6 @@ https://modsfire.com/T6AZg173d18XItK
 توكسك
 https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file
 
-اكسبدشن
-https://github.com/saby505/SABI505/tree/add-mods-list/mods
-
 هلي٩
 https://modsfire.com/yG8Wm9F8F8w81sV
 
