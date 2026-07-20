@@ -124,12 +124,6 @@ https://modsfire.com/aY4X6vuwKtn1zzc
 ازيرا نسخة رسوو
 https://www.mediafire.com/file/lr2t98wb3v5f2vd/Hyundai_Azera_2022_v0.2.zip/file
 
-كامري ٢٥ نسخة M٧
-https://www.mediafire.com/file/8pmdkprttiivrgq/Camry_2025_KHwylD.rar/file
-
-كموره ٢٥ رسوو
-https://www.mediafire.com/file/8pmdkprttiivrgq/Camry_2025_KHwylD.rar/file
-
 اكورد ٢٠٠٤
 https://modsfire.com/O05a1e15E8pTxS1
 
@@ -160,11 +154,5 @@ https://modsbase.com/3lkky6ggsu2v/GMC_Yukon.zip.html
 كورلا ١٨
 https://modsfire.com/aM9kfN7BuM6DZV3
 
-فرشنر جعفر
-https://modsfire.com/n7dG0jzSEqZDW40
-
 افلون
 https://www.mediafire.com/file/l5bans96w6vcm0b/Avalon22ByFahadAndTurki.zip/file
-
-ربيعان ١٦
-https://modsfire.com/KhYMpbp2s5K35ow
