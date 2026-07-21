@@ -83,7 +83,7 @@ https://www.mediafire.com/file/fi4ch7loh8isk40/3tb_kia_optima_2015.zip/file
 https://modsfire.com/t9Fn3m6KOfD1G68
 
 ماركيز
-https://modsfire.com/0l5CuurbCzlpN41
+https://modsfire.com/0l5CuurbCz1pN41
 
 مارسيديس بنز ١٦
 https://modsfire.com/5os9wkyqkj757js
@@ -198,3 +198,6 @@ https://modsfire.com/Eo5UZI86MjJy3Vg
 
 ماركيز
 https://modsfire.com/015CuurbCz1pN41
+
+عثيم سلي
+https://modsfire.com/yn28usVMcPqaxTt
