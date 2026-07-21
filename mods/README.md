@@ -79,9 +79,6 @@ https://modsfire.com/ixorU0Eu1oLe87n
 اوپتما ٢٠١٥
 https://www.mediafire.com/file/fi4ch7loh8isk40/3tb_kia_optima_2015.zip/file
 
-تاهو ٢٠١٥
-https://modsfire.com/k9cG2tpn64Hlq10
-
 كامري ٢٠٠٤
 https://modsfire.com/t9Fn3m6KOfD1G68
 
@@ -145,9 +142,6 @@ https://modsfire.com/svhinihSG5xq5E8
 صني ١٠
 https://modsfire.com/save2g2FBJup4Om
 
-يوكن ١٢
-https://modsbase.com/3lkky6ggsu2v/GMC_Yukon.zip.html
-
 كورلا ١٨
 https://modsfire.com/aM9kfN7BuM6DZV3
 
@@ -165,18 +159,6 @@ https://modsfire.com/PC32gB5mhxeArXy
 
 هلي ١٦
 https://modsfire.com/Z3284wHp21wD5pT
-
-ددسن درب
-https://modsfire.com/1JtfY2ok22pTSre
-
-كامري ٢٠٠٤
-https://modsfire.com/1JtfY2ok22pTSre
-
-لكزز جيب ١٦-٢١
-https://modsfire.com/RVKhIh1Q286eG48
-
-تاهو١١
-https://modsfire.com/2834uW5ovjshfr6
 
 F150
 https://modsfire.com/635GmJrS4czzj05
