@@ -148,9 +148,6 @@ https://modsfire.com/aM9kfN7BuM6DZV3
 افلون
 https://www.mediafire.com/file/l5bans96w6vcm0b/Avalon22ByFahadAndTurki.zip/file
 
-ماركيز
-https://modsfire.com/0l5CuurbCzlpN41
-
 كروز ١٢
 https://modsfire.com/2cx8N8l4z9jt0z8
 
@@ -190,5 +187,8 @@ https://www.dropbox.com/scl/fi/s6vcp3rzqleromx128mb8/Accord2023.zip?rlkey=6tvtp7
 ربع 2024
 https://www.dropbox.com/scl/fi/7o93o4wbngii2onkitxba/RB3_2024_KHwylD.zip?rlkey=li0avd9fl38ktz57fleg1t0ia&st=gkngtf0u&dl=1
 
-تاهو ١٦
-https://modsfire.com/Eo5UZI86MjJy3Vg
+دوج ٧١نسخه
+https://www.mediafire.com/file/u0ocjswmmk4t1hg/RAZAH_dodge_charger.zip/file
+
+فورشنر ١٥
+https://base44.app/api/apps/6a58c3048635a6efbd908029/files/mp/public/6a58c3048635a6efbd908029/c5a86f011_fortuner.zip
