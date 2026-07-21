@@ -201,3 +201,9 @@ https://modsfire.com/015CuurbCz1pN41
 
 عثيم سلي
 https://modsfire.com/yn28usVMcPqaxTt
+
+يوكن ٧
+https://www.dropbox.com/scl/fi/3kx2uq6tordzgt9cwwc7a/vehicles.zip?rlkey=g1sy3a28ply3c7c48evvxp5rp&st=g08vivjo&dl=1
+
+سيرا ٢٠١٥
+https://modsfire.com/wEonsUt8iWsRXuL
