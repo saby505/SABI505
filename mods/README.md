@@ -192,3 +192,9 @@ https://www.mediafire.com/file/u0ocjswmmk4t1hg/RAZAH_dodge_charger.zip/file
 
 فورشنر ١٥
 https://base44.app/api/apps/6a58c3048635a6efbd908029/files/mp/public/6a58c3048635a6efbd908029/c5a86f011_fortuner.zip
+
+تاهو ١٦
+https://modsfire.com/Eo5UZI86MjJy3Vg
+
+ماركيز
+https://modsfire.com/015CuurbCz1pN41
