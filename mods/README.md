@@ -328,4 +328,4 @@ c360&dl=1
 كامري ٢٠٢٥ (٢) https://www.dropbox.com/scl/fi/izvw50o92wv7m4ob63acr/Camry-2025-1.zip?rlkey=h426opmmnrvenamp72pdcluz5&st=04qg2egt&dl=1
 كامري ٢٠١٨  https://www.dropbox.com/scl/fi/5iuqz9622t2c99umq73w0/Camry-2018.zip?rlkey=37tdbogq3jlug48dmlwxe6zm7&st=y62t89v4&dl=1
 كدنزا ٢٠١٨  https://www.dropbox.com/scl/fi/5a0le1e0kjfz28siwrdfx/Cadenza-2018.zip?rlkey=x
-كورلا ١٢ https://modsfire.com/gmOMhWychYklNsF         ماب العنوز ستي.  https://modsfire.com/eDs9BAxEPEOVHq7      كابرس دكستر https://modsfire.com/X2OZgav8OeC69pj       هلي سبعتعش غمارتين  https://modsfire.com/Z3284wHp21wD5pT
+     كورلا ١٢ https://modsfire.com/gmOMhWychYklNsF         ماب العنوز ستي.  https://modsfire.com/eDs9BAxEPEOVHq7      كابرس دكستر https://modsfire.com/X2OZgav8OeC69pj       هلي سبعتعش غمارتين  https://modsfire.com/Z3284wHp21wD5pT
