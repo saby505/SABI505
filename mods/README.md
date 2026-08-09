@@ -326,20 +326,9 @@ c360&dl=1
 
 تشارجر https://www.dropbox.com/scl/fi/7a9h1hfk2ecgthxxje4fo/chives_beta_dodge_charger_v2-2.zip?rlkey=dc55zehk2xpi1hkp5iyak9eqp&st=4xsuavl6&dl=1
 كامري ٢٠٢٥ (٢) https://www.dropbox.com/scl/fi/izvw50o92wv7m4ob63acr/Camry-2025-1.zip?rlkey=h426opmmnrvenamp72pdcluz5&st=04qg2egt&dl=1
-كامري ٢٠١٨  https://www.dropbox.com/scl/fi/5iuqz9622t2c99umq73w0/Camry-2018.zip?rlkey=37tdbogq3jlug48dmlwxe6zm7&st=y62t89v4&dl=1
-كدنزا ٢٠١٨  https://www.dropbox.com/scl/fi/5a0le1e0kjfz28siwrdfx/Cadenza-2018.zip?rlkey=x       
-     كورلا ١٢ https://modsfire.com/gmOMhWychYklNsF         ماب العنوز ستي.  https://modsfire.com/eDs9BAxEPEOVHq7      كابرس دكستر https://modsfire.com/X2OZgav8OeC69pj       . . . . . تاهو ١١ https://modsfire.com/2834uW5ovjshfr6 تورس تجاليد ٢٤ https://modsfire.com/V27g94s7C8aVFRB سوناتا ٩ https://modsfire.com/b8Amh1BUa2uMGqM
-بي ام الجيل ٣ خوالع https://cdn.discordapp.com/attachments/1529934102826844281/1529934107050643609/BMW_730.zip?ex=6a738fab&is=6a723e2b&hm=4070c1cb7119da58e3459ca1ec6551c0bb1bda6f8e4478addf3168971f83b7fc& يوكن ١٤ https://cdn.discordapp.com/attachments/1534002500363882736/1534002501689413802/vehicle_yuckon_2014_1784834221115.zip?ex=6a733368&is=6a71e1e8&hm=ef0847335c6c29eccaee6b92055dbd1d99f295f336c1890222e56a441c6a5ae1& اكسبدشن ٩ https://cdn.discordapp.com/attachments/1534012357272141984/1534012358748274839/Ford_Explorer_2009.zip?ex=6a733c96&is=6a71eb16&hm=fa32e7da2699abb7c0ec1f8fbc6c32ad887e478ba0ae09ed960896cbf8be6ab5& تاهو ١٨ https://cdn.discordapp.com/attachments/1529644071390547989/1529644081033248798/BoDuaij_Tahoe18.zip?ex=6a732a50&is=6a71d8d0&hm=a3cb0db4dd5e258272e1f0c6014a74ca226b87a8666909e58546680fb3de025d&
-فورد ٩٧ https://cdn.discordapp.com/attachments/1533212128545210658/1533212131334295714/ford-crown-vic-92_97_fix_modland.zip?ex=6a739f11&is=6a724d91&hm=78becee296b49e15bba12a130a80b4361b2cca8e0c04401cb3ce228a71ed39e0&
- سزوكي جمني https://cdn.discordapp.com/attachments/1533766126180503653/1533766127736455178/koko_jimny_2016_1785620583061.zip?ex=6a73a8c4&is=6a725744&hm=d03029bd475cc723ea8fbde9fadc896ee797abe79a0395fe7f381623a6f25082&
-.
-.
-.
-كامري٢٤ https://cdn.discordapp.com/attachments/1485621063613288498/1485621073675292733/CAMRY_24_21_sh9_hdyt_al3id.zip?ex=6a73d9b1&is=6a728831&hm=46c96eb93dca4bd0854134701434cf84e88cffebe0f138f5cd2b5c05933e7107& النترا ١٢ https://cdn.discordapp.com/attachments/1472211030125052017/1472211035397161147/2023.zip?ex=6a73d81f&is=6a72869f&hm=d0fbb8ac7ad3c3b3811c3fe38d6a14b53d244f6a57b8bbac14ea766d4d29580e& هنادي ١١ https://cdn.discordapp.com/attachments/1484037709541670974/1484037716160151592/Honda_Accord_2012_tg_modsbeamng.zip?ex=6a7405d3&is=6a72b453&hm=6ef34f0e4124ae1ef2ec8847b7410408c1046a2b692b409eddb130d164f07384& سوناتا ٢٤https://cdn.discordapp.com/attachments/1471279545763238000/1471279550313926757/Hyundai_Sonata_2024_1.1.zip?ex=6a73c05b&is=6a726edb&hm=b40b1bdbef200e67a54c4a2711f7a739f0fd84f08cf139db4bc6d3eda7b79eea& كادي ١٨ https://cdn.discordapp.com/attachments/1458263519941099634/1458263523380428933/Cadenza_2018_1.zip?ex=6a73dc3d&is=6a728abd&hm=6931743697e90448dd9dee401d4073f65e0a4733465e0e43d6222f65f820162f& النترا ١٧ https://cdn.discordapp.com/attachments/1464771306758213652/1464771311539585054/M7_elantra17.zip?ex=6a73ce16&is=6a727c96&hm=e0374dc4233c4d2ffe88c758cf9b611690380c6c40433e13a11980fcad066569& موستنج https://cdn.discordapp.com/attachments/1457472444968472783/1457472454673826004/Mustang_GT350_Ray_1.zip?ex=6a739e7f&is=6a724cff&hm=83a60bb968b41071ff8c051bbd7aa45125ad2971a8742a17a263b656df239bf1&
-.
-. 
 
-https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file توكسك
+
+امباو زمفل٢٤ https://cdn.discordapp.com/attachments/1526793953435848785/1535589882582540288/Gac_Empow_2022_2025_YA.zip?ex=6a78f9c5&is=6a77a845&hm=3b5bd718d650cd2bf40506889dfe0f861f2c1c9531acf410d855a5ad644d856e& يوكن ١٤ https://cdn.discordapp.com/attachments/1526793953435848785/1534197589858193620/Yuckon_2014_YA.zip?ex=6a788659&is=6a7734d9&hm=a294deed5ea9f2aade0a80c498da14a109e57e2d6d69c176e8c72e8a7b2773d4& كروز ٢٤ https://cdn.discordapp.com/attachments/1526793953435848785/1534198678523216023/Echo_Team_cruze_2026_YA-_.zip?ex=6a78875c&is=6a7735dc&hm=6907ac7673853cbde13912ba6af8c295cd054f434a6eb06fd89009f8276a69fc& سوناتا ٢٤ https://cdn.discordapp.com/attachments/1526793953435848785/1534545952675987536/koko_sonata_2014_YA.zip?ex=6a787949&is=6a7727c9&hm=dd649036531be4c0274d9054be0dfa369861fc523525079d9fc4efb5de68e888& 
 .
 . https://cdn.discordapp.com/attachments/1477331183816671325/1477331194176864330/themanhacc_tx_map.zip?ex=6a74ac64&is=6a735ae4&hm=60dc474f58aad942df504779abcde167d420e48e52f57d23b5a811e3087e52bc& ماب واقعيه 
 .
@@ -348,3 +337,9 @@ https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file تو�
 .
 
 https://modsfire.com/4v51qabgobqm3lA ماب حاتم بدون بوتات
+
+https://cdn.discordapp.com/attachments/1534157043957502083/1535094854164684841/Al_Ghrub_AY.zip?ex=6a787e3d&is=6a772cbd&hm=06da603f6509787c6f5b79a11efd9fd0109330fb187d16ef3f8e0ecaf67244e4& ماب الغروب 
+
+
+https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file توكسك
+
