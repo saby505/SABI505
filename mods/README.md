@@ -324,6 +324,25 @@ c360&dl=1
 كامري ٢٠٢٥ (٢) https://www.dropbox.com/scl/fi/izvw50o92wv7m4ob63acr/Camry-2025-1.zip?rlkey=h426opmmnrvenamp72pdcluz5&st=04qg2egt&dl=1
 
 
+https://modsfire.com/X2OZgav8OeC69pj كابرس دكستر
+
+
+
+https://modsfire.com/jG2d2M6CYbDTs3G كامري 24
+
+
+https://modsfire.com/V2sQw4hZPikjES7 اكورد 17
+
+
+
+https://modsfire.com/0v8HN2aju8lSWmi ددسن هدرز وفلتر واقعي
+
+
+https://www.mediafire.com/file/ni9c4ai6smjvh6q/Abo3Zmh_hilux_v1.zip/file هلي غمارتين 13-15
+
+
+https://modsfire.com/n62FWx47QywQsbI اكسنت 24
+
 
 
 
